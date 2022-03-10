@@ -1,4 +1,3 @@
 # ejercicio01
-ejercicio01
-ssdholallll
+Oscar te quiero mucho, como la trucha al trucho
 
